@@ -1,2 +1,0 @@
-# nithinlalith.github.io
-WIP
